@@ -6,4 +6,4 @@
 
 欢迎关注B站：hw-dong
 
-QQ群可在https://a.hwdong.com查看
+QQ群: 101132160
